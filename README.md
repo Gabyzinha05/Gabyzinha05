@@ -22,5 +22,7 @@ Veja no vídeo asseguir: ? https://drive.google.com/file/d/1bE7rkR5VXqSo0FtIagtx
 Obs* caso não dê certo reveja o que você fez de errado e tente novamente.
 
 Thayná Costa n°28
+
 Gabrielly Lopes Rodrigues n°04 
+
 3° ano B 
